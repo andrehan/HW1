@@ -1,2 +1,0 @@
-Andrew Han
-Detroit Tigers
